@@ -1,0 +1,1 @@
+A digital agency is a business that helps with digital marketing efforts, such as website design and development, search engine optimization (SEO), content marketing, paid online advertising, social media, and email marketing.
